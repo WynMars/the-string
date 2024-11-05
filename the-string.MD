@@ -1,7 +1,3 @@
-Title: The String
-Author: Wyn Mars
-Date: 2020
-
 INT. CHINA, HAI YUE SCHOOL, GRADE 1 CLASSROOM - DAY
 
 NOISY SOUNDS inside the classroom.
