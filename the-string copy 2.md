@@ -1,0 +1,113 @@
+INT. CHINA, HAI YUE SCHOOL, GRADE 1 CLASSROOM - DAY
+
+NOISY SOUNDS inside the classroom.
+
+GRADE 1 STUDENTS(6-8), some are solving mathematic questions, some are copying each other’s answers, some are talking and playing.
+
+STUDENT A tears a page from his mathematics workbook, folds it into a plane, flies it across the classroom.
+
+STUDENT B is blowing a bubble gum bubble, the bubble becomes bigger and bigger until it BURSTS.
+
+ZHANG YI-TANG(55), a male mathematics teacher, in an old plain T-shirt, looks serious and unhappy, writes on the blackboard.
+
+MO SI-LEE(6), a skinny boy with glasses, is solving mathematics questions. When he finishes the last question, a fat male boy, JU LIN-WYN(7), takes away Lee’s workbook, throws back his own workbook without answers.
+
+Lee stands up and chases Wyn, Wyn runs away, Lee follows.
+
+Tang turns to the students, sees Lee and Wyn are running out of the classroom through the front door.
+
+TANG
+Mo Si-Lee, Ju Lin-Wyn, Stop! Get
+back to your seats!
+
+Tang chases them, he is still holding the chalk.
+
+Lee and Wyn run back into the classroom through the backdoor, they wrestle on the ground.
+
+TANG (CONT'D)
+Mo Si-Lee, Ju Lin-Wyn, stop right
+now!!!
+
+Tang separates the boys, Lee is in tears, grabs his crumpled workbook, goes back to his seat.
+
+Tang walks back to the lectern, looks at the students that are still playing, hits the lectern with a book heavily.
+
+TANG (CONT'D)
+Everyone gets back to your own
+seats and be quiet!!!
+
+The whole classroom quiets down, students go back to their seats.
+
+Tang points to the blackboard.
+
+TANG (CONT'D)
+Can anyone solve this question?
+
+On the blackboard, a mathematic question is written:
+1+2+3+4+5+6+7+8+9=
+Students look at the question, quiet.
+
+TANG (CONT'D)
+(look at Lee)
+Mo Si-Lee?
+
+Lee wipes away the tears, walks to the blackboard, draws a line connect between 1 and 9, then 2 and 8, pauses, goes back to his seat.
+
+TANG (CONT'D)
+Have you finished it?
+(beat)
+What’s the answer?
+
+Lee counts on his fingers.
+
+LEE
+45.
+
+Tang is surprised.
+
+
+INT. HAI YUE SCHOOL, TEACHERS’ OFFICE - LATER
+
+The office has an old glass bookcase and 4 desks. A MALE MATHEMATICS TEACHER(40’s) is working on his computer, the remaining desks are empty.
+
+Tang enters, his desk is at the back. He sits down, leans back on the chair, breathes heavily.
+
+SHIAO SHIAO(23), a newly graduated female mathematics teacher, outgoing and energetic, enters.
+
+SHIAO
+Teacher Tang! Have you read...
+(looks at Tang)
+Are you ok? Teacher Tang.
+
+TANG
+I just need some rest, those kids
+are so naughty.
+
+SHIAO
+Kids?
+
+
+TANG
+The 2 months maternity of leave for Teacher Hua, I took over one of her classes.
+
+SHIAO
+Ohh, I also took over two of her
+classes, but I am fine with kids.
+
+TANG
+(with a wry smile)
+I am just being old.
+
+Shiao sits down to her desk, which is next to Tang’s, then suddenly turns to Tang.
+
+SHIAO
+Teacher Tang, have you read today’s news? They announced the recipients of the Fields Medal and one of them is a female! This is the first time that a female has received the Fields Medal!!!
+(sigh)
+I thought I would be the first female who received, but that’s ok, at least it gives me inspiration.
+
+Shiao turns back, murmurs to herself.
+
+SHIAO (CONT'D)
+Fields Medal’s recipient needs to be under...40, so I have like...17 years to work on it. Um, I still have time.
+
+Tang touches the back of his head; his hair is sparse.
